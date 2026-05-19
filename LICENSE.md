@@ -1,4 +1,4 @@
-# 
+# professional Affinity Photo PC版 插件 是最佳 Affinity Photo PC版 插件，集成 节点编辑 和 流体模拟。安全、可靠、优化，性能最大化。
 
 
 
